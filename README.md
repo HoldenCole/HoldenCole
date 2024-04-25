@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning best methods for pricing and forecasting derivatives.
 - 💞️ I’m looking to collaborate on any project but most interested in things regarding the finance sector.
 - 📫 How to reach me h.cole320@icloud.com
-- ⚡ Fun fact: I am bug into strategy games (Paradox Interactive Nerd)
+- ⚡ Fun fact: I am big into strategy games (Paradox Interactive Nerd)
